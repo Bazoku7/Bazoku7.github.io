@@ -1,1 +1,0 @@
-# Bazoku7.github.io
